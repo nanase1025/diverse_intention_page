@@ -1,1 +1,1 @@
-# eccvpage
+# Diverse Intention Project Page
